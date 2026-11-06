@@ -1,5 +1,5 @@
 ### Hi there 👋
-i'm a dumbass :D
+Check out https://systole.co.uk
 
 Want to get in contact with me? Here's some socials for ya:  
     - My Discord server link is here: https://discord.gg/3fQaBj87xP  
